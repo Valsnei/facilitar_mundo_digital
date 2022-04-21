@@ -2,4 +2,5 @@
 
 
 
-. Simplificar o Mundo Digital
+. Simplificar o Mundo Digital. através de explicações de fácil entendimento 
+
